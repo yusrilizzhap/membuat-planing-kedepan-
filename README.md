@@ -2,3 +2,6 @@
 ini adalah repo inti saya 
 saya ingin bangun tepat waktu 
 saya ingin belajar tepat waktu 
+saya ingin belajar memasak
+saya ingin belajar coding 
+saya ingin sukses
