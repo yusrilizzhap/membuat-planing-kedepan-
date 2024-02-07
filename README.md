@@ -10,3 +10,4 @@ saya ingin survive
 <<<<<MEMBUAT PLANING RENCANA 1>>>>>>>
 MANDI 
 HOLIDAY
+
